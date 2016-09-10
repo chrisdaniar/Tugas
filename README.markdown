@@ -3,4 +3,4 @@ Form pendaftaran yang saya buat tentang form pendaftaran anggota baru sub organi
 
 ![Capture2](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Capture2_zpsssdxejfr.jpg)
 ![Capture1](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Capture1_zpseargszqm.jpg)
-![Capture3](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Screenshot%20113_zpsiksizzaf.png]
+![Capture3](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Screenshot%20113_zpsiksizzaf.png)
