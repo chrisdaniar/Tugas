@@ -8,4 +8,11 @@ ini link aplikasi nya :
 ![Capture1](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Capture1_zpseargszqm.jpg)
 ![Capture3](http://i38.photobucket.com/albums/e133/chrisdaniar/Tugas001/Screenshot%20113_zpsiksizzaf.png)
 
+# Identitas 
+Nama : Tri Ratna Putri Chrisdaniar <br>
+Kelas : XI RPL 2 <br>
+No urut : 29 <br>
+NIS : 4844/1563.070 <br> 
+Nama Sekolah : SMK TELKOM MALANG <br> 
+
 
